@@ -24,4 +24,4 @@ De Reagent Game Jam staat open voor iedereen die geïnteresseerd is in het exper
 
 ## Deelnemen
 
-Binnen het tabblad *Deelname* kan je de inschrijvingslink vinden voor de game jam. Let wel: voor deze eerste editie worden het aantal plaatsen beperkt tot 10 verschillende teams, van elk 3-5 teamleden!
+Binnen het tabblad *Deelname* kan je de inschrijvingslink vinden voor de game jam.
