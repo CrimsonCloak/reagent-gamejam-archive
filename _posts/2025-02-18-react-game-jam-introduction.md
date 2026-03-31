@@ -15,7 +15,7 @@ Alle communicatie en updates zal je kunnen terugvinden op deze website. Naarmate
 
 ## Timing
 
-De game jam zal plaatsvinden van **11/04/2025** tot en met **18/04/2025** (vrijdag-vrijdag). Op deze vrijdagen voorzien we enerzijds een fysieke openingsdag, waarbij de nodige uitleg, tips en adviezen worden gegeven, en een fysieke sluitingsceremonie anderzijds, waarbij de inzendingen bekeken worden en de meest fantastische creaties ook plechtig bekroond worden. We voorzien hier ook catering voor de deelnemers!
+De game jam zal plaatsvinden van **10/04/2026** tot en met **17/04/2026** (vrijdag-vrijdag). Op deze vrijdagen voorzien we enerzijds een fysieke openingsdag, waarbij de nodige uitleg, tips en adviezen worden gegeven, en een fysieke sluitingsceremonie anderzijds, waarbij de inzendingen bekeken worden en de meest fantastische creaties ook plechtig bekroond worden. Op beide vrijdagen zijn jullie welkom vanaf 16u in het netwerklokaal, om 20u worden diegenen die er nog zijn zachtjes buitengewerkt. We voorzien hier ook catering voor de deelnemers!
 
 Tijdens deze week werken de teams op zelfstandige basis verder aan de eigen games. Jullie kiezen zelf wat jullie aanpak en workflow is binnen het team (nachtraven of vroege vogels?) en krijgen een week de tijd om jullie concept uit te werken!
 
